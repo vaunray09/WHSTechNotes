@@ -9,3 +9,7 @@ One game I really enjoy playing is a roblox game called Devas Of Creation.It has
 # September 12, 2024
 
 In my opinion,I had no problem setting up my journal.The site with the information was easy to read ad understand and the intructions that you gave verbally were easy to understand as well.To me setting up the journal was fairly easy but i cant say the same for all students since everyones comprehends everything differently.
+
+# September 17, 2024
+
+This week is a free week.
