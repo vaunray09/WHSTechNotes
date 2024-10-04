@@ -13,3 +13,11 @@ In my opinion,I had no problem setting up my journal.The site with the informati
 # September 17, 2024
 
 This week is a free week.
+
+# September 26, 2024
+
+Following instructions is important and should not be ignored.
+
+# October 1, 2024
+
+Without computer science many games that i play would not have been made due to the creative creators behind the game and this is what makes computer science so unique to turn a blank baseplate into something new and good and worthy of presenting to others and having them enjoy themselves.
