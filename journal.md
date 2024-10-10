@@ -21,3 +21,12 @@ Following instructions is important and should not be ignored.
 # October 1, 2024
 
 Without computer science many games that i play would not have been made due to the creative creators behind the game and this is what makes computer science so unique to turn a blank baseplate into something new and good and worthy of presenting to others and having them enjoy themselves.
+
+# October 10, 2024
+
+Job title:Clothing Brand Owner
+Job Description:Make and sell clothes to the public
+SKills Required:Creativity and being able to desgin
+Education n Experience:None needed
+Career Growth:You can grow the brand really big and be known worldwide.
+Reflection:I wanna be succesful famous and make a ton of money while being able to be my own boss.
