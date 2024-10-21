@@ -30,3 +30,7 @@ SKills Required:Creativity and being able to desgin
 Education n Experience:None needed
 Career Growth:You can grow the brand really big and be known worldwide.
 Reflection:I wanna be succesful famous and make a ton of money while being able to be my own boss.
+
+# October 21, 2024
+
+Ai are really helpful with things such as coming up with ideas and making plot.But one of the cons is it can fake being other people which is very dangerous and you can make certain bad images with ai but besides that ai is helpful.
