@@ -34,3 +34,10 @@ Reflection:I wanna be succesful famous and make a ton of money while being able 
 # October 21, 2024
 
 Ai are really helpful with things such as coming up with ideas and making plot.But one of the cons is it can fake being other people which is very dangerous and you can make certain bad images with ai but besides that ai is helpful.
+
+# November 4, 2024
+
+1.Because your personal information shouldnt be in the hands of random people online
+2.You can put codes on your login and things like that
+3.No i have never done such a thing.
+4.Not mentioning person stuff just working on the project
