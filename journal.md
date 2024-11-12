@@ -41,3 +41,8 @@ Ai are really helpful with things such as coming up with ideas and making plot.B
 2.You can put codes on your login and things like that
 3.No i have never done such a thing.
 4.Not mentioning person stuff just working on the project
+
+# November 12, 2024
+
+Technology/Data analysis
+The technology in football like scoreboards keep track and display the score of the ongoing game.While aslo counting the down and distance while displaying how far the first down is.
