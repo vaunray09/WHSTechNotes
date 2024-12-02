@@ -46,3 +46,7 @@ Ai are really helpful with things such as coming up with ideas and making plot.B
 
 Technology/Data analysis
 The technology in football like scoreboards keep track and display the score of the ongoing game.While aslo counting the down and distance while displaying how far the first down is.
+
+# December 2, 2024
+
+For ai I think as long as we dont turn them into robots and overly use of them there is no concern as of now ,Renewable energy is one of the smartest things for car I wouldnt prefer it but to power your house it makes your electric bill cheaper by using a resource that is given to us like the sun since it is an infinite energy source besides when it is not day time.
