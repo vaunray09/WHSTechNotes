@@ -61,6 +61,6 @@ looking back I enjoyed class very chill and comfortable ms.whitby is very unders
 Looking ahead I just want to stay on top of my grades and do as best as i could.
 No,i dont really want any certification and their not really important to me in my opinion.
 
-# January 13,2025
+# January 13, 2025
 
 at this point tech majors will run out of jobs due to ai,this is avery big problem but we cant do anything about it.
