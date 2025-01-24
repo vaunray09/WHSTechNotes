@@ -64,3 +64,7 @@ No,i dont really want any certification and their not really important to me in 
 # January 13, 2025
 
 at this point tech majors will run out of jobs due to ai,this is avery big problem but we cant do anything about it.
+
+# January 22, 2025
+
+I think the tiktok case was dumb even the questions the questions they were asking the tiktok ceo didnt make sense and these are the people that lead the country.In my opinion I didnt care if tiktok left anyway because I didnt really use it but it was many people jobs and the way they got paid and there were also some informing things on their.
