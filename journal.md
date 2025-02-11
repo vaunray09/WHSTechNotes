@@ -68,3 +68,9 @@ at this point tech majors will run out of jobs due to ai,this is avery big probl
 # January 22, 2025
 
 I think the tiktok case was dumb even the questions the questions they were asking the tiktok ceo didnt make sense and these are the people that lead the country.In my opinion I didnt care if tiktok left anyway because I didnt really use it but it was many people jobs and the way they got paid and there were also some informing things on their.
+
+# February 4, 2025
+
+We can use better tracking on the planes so we can inform pilots if they are near any other air vehicles I believe this is the safest way to keep airborne crashes to a minimum we can also insure the weather is perfect for n a straight path perfect height this will greatly affect the odds of airborne crashes happening.
+
+# February 
