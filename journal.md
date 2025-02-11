@@ -73,4 +73,6 @@ I think the tiktok case was dumb even the questions the questions they were aski
 
 We can use better tracking on the planes so we can inform pilots if they are near any other air vehicles I believe this is the safest way to keep airborne crashes to a minimum we can also insure the weather is perfect for n a straight path perfect height this will greatly affect the odds of airborne crashes happening.
 
-# February 
+# February 11, 2025
+
+The superbowl analytics can be compared using the pass completion percenteges past data and many other factors that can cause a team to win or lose.Most of the time its analytics and more studying the game.
