@@ -76,3 +76,7 @@ We can use better tracking on the planes so we can inform pilots if they are nea
 # February 11, 2025
 
 The superbowl analytics can be compared using the pass completion percenteges past data and many other factors that can cause a team to win or lose.Most of the time its analytics and more studying the game.
+
+# March 17, 2025
+
+Over the break I used technology a lot.I used my phone on apps like tiktok and instagram and learned many random facts and things like that.I used my laptop to watch netflix and hulu to watch shows.
