@@ -80,3 +80,7 @@ The superbowl analytics can be compared using the pass completion percenteges pa
 # March 17, 2025
 
 Over the break I used technology a lot.I used my phone on apps like tiktok and instagram and learned many random facts and things like that.I used my laptop to watch netflix and hulu to watch shows.
+
+# March 31, 2025
+
+Ive been feeling good pretty confident been getting more friends overall just been living life as best as I can a goal im trying to accomplish is buying a car before summer im looking to get a chrysler 300 but who knows it all may change.
