@@ -81,6 +81,14 @@ The superbowl analytics can be compared using the pass completion percenteges pa
 
 Over the break I used technology a lot.I used my phone on apps like tiktok and instagram and learned many random facts and things like that.I used my laptop to watch netflix and hulu to watch shows.
 
+# March 24, 2025
+
+well as a person who doesnt really watch basketball march madness doesnt really matter to me but i did see some wild plays from march madness on tiktok and lets just say it was madness alright.
+
 # March 31, 2025
 
 Ive been feeling good pretty confident been getting more friends overall just been living life as best as I can a goal im trying to accomplish is buying a car before summer im looking to get a chrysler 300 but who knows it all may change.
+
+# April 7,2025
+
+Because Ai can teach you how to do things tep by step in the matter of seconds meaning you can learn much way faster than you would with a usual teacher but I also believe that having an in person teacher still has its own benefits though.
